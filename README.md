@@ -1,3 +1,4 @@
+CV active at site - https://shafiatunnurshimu23.github.io/seminar_lab_assignment/
 ![Screenshot (177)](https://github.com/shafiatunnurshimu23/shimu/assets/126905316/435e32da-3ef9-4f79-8d27-e231f9cbd14d)
 
 
